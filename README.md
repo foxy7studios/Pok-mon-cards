@@ -1,2 +1,2 @@
-# Pok-mon-cards
-mooooooooosd
+download and then print in a printer and cut out
+
